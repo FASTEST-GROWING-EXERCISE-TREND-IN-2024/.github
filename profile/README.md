@@ -9,3 +9,4 @@ Strength training is increasingly popular among all age groups, including older 
 The demand for at-home fitness equipment remains strong, a trend that started during the COVID-19 pandemic. Many people continue to invest in home gyms and equipment, finding it a convenient and effective way to maintain their fitness routines.
 
 [for more information ](https://murrylifelinecareers.blogspot.com/2024/08/fastest-growing-exercise-trend-in-2024.html)
+ [check out these video](https://youtube.com/shorts/2xItyR7CJHs) 
